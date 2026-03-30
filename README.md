@@ -1,5 +1,5 @@
 # Integrantes
-## Andrés Aguayo, Fabricio Maida (Mi maldito padre)
+## Andrés Aguayo, Fabricio Maida (El puto)
 
 Hola mundo!
 
