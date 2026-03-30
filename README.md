@@ -3,8 +3,5 @@
 
 Hola mundo!
 
-Alumno 2 Edit
 
--   *Escribo esto para poder distinguir los cambios, nada más.*
-
-Hola Andres
+NASHEI
