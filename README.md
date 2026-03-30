@@ -1,9 +1,15 @@
 # Integrantes
-## Andrés Aguayo, Fabricio Maida (El puto)
+## Andrés Aguayo, Fabricio Maida (D10S)
 
 Hola mundo!
 
-- RAKATANASHEI
-- Gabi se la comabrex
 
-NASHEI
+
+Cuarzo
+Papiro
+Navaja
+
+
+
+Maradonaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+El Diegooooooooooooooooooooooooo
